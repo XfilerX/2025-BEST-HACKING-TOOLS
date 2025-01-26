@@ -3,4 +3,4 @@ FREE HACKING TOOLS AND PAID TOOLS #hacking #hackingtools #RATS #botnets # keylog
 
 Public tools i post for free i have other new and better tools and methods of the new cyber world and reday for what comes your way 
 
-find the best tools and new methods here https://t.me/+EFDaAAXjxtswZThh
+join my telegram for the best tools and new methods here in my telegram with osint and hacking services and hacking related things   https://t.me/+EFDaAAXjxtswZThh
